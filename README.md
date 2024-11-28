@@ -78,10 +78,6 @@
 ![Screenshot_6](https://github.com/user-attachments/assets/5f7d46d5-45a4-41af-a63b-0c35e9e9ac2b)
 
 
-
-
----
-
 ---
 
 ## 📬 Контакты
